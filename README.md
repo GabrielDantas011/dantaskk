@@ -1,1 +1,1 @@
-Seja bem vindo ao meu perfil, meu nome é Gabriel
+Seja bem vindo ao meu perfil, meu nome é Gabriel tenho 17 anos, estou cursando o ensino médio, e técnico em marketing, tenho como hobbies fazer designs, ver coisas sobre moda, escutar musica, e estudar história em geral, e pretendo cursar faculdade de publicidade e propaganda, e atuar na área da comunicação.
